@@ -1,4 +1,4 @@
-
+premium king legacy Script offers the most advanced king legacy Script, with god mode and auto-upgrade. Perfect for dominating any match.
 
 
 
